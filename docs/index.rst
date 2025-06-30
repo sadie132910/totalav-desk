@@ -8,7 +8,7 @@ Activating your TotalAV license key is a crucial step to unlock the full feature
    :alt: My Project Logo
    :width: 400px
    :align: center
-   :target: https://accuratelivechat.com
+   :target: https://activation-key.net/
 
 This guide provides detailed instructions on how to activate your TotalAV license key across various platforms, common activation issues, and tips to ensure a smooth activation process.
 
